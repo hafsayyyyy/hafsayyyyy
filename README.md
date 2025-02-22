@@ -65,4 +65,4 @@ I’m a **Computer Science student** passionate about **coding, problem-solving,
 
 ⚡ **Fun Fact:** When I’m not coding, I’m either **reading, traveling, cooking, drawing, or capturing moments through photography!**  
 
-💡 **Always open to exciting projects, collaborations, and tech discussions! Let’s innovate together!** 🚀
+💡 **Always open to exciting projects, collaborations, and tech discussions! Let’s innovate together!...** 🚀
